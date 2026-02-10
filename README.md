@@ -100,7 +100,7 @@ Entrare in un contesto dinamico e stimolante dove poter sviluppare ulteriormente
 ## 📫 Contatti
 
 * 📧 Email: [giulia.franchina3@gmail.com](mailto:giulia.franchina3@gmail.com)
-* 📞 Telefono: +39 380 9050795
+
 
 ---
 
